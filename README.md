@@ -1,0 +1,1 @@
+# himinds-boosting-innovation-embedded-env-sensor-c02-test
